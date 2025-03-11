@@ -1,1 +1,0 @@
-# jeraldorina_periodictable
